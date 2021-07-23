@@ -1,4 +1,4 @@
-# `fas:User` Izan Mendoza  - **Calvin**
+# Izan Mendoza  - **Calvin**
 ---
 
 ## Description
